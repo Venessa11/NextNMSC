@@ -30,7 +30,7 @@ While traditional ATLS courses, involving lectures, skill stations with manikins
 
 It is within this context that VR and simulation technologies are gaining significant traction within the Sweden ATLS market, offering innovative solutions to address these limitations and elevate the quality of trauma care training.
 
-## [Inquire before buying](nextmsc.com/sweden-automated-truck-trailer-loading-system-market/inquire-before-buying)
+## [Inquire before buying](https://www.nextmsc.com/sweden-automated-truck-trailer-loading-system-market/inquire-before-buying)
 
 ## Virtual Reality (VR) in ATLS Training: Immersive Learning Experiences
 
